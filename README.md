@@ -103,5 +103,5 @@ Suicide is a sensitive topic. If you or someone you know is struggling, please s
 ## 📬 Contact
 
 For questions or collaborations:
-**Your Name** – (mailto:kelvinkipchumba935@gmail.com)]
+**Kelvin Kipchumba** – (kelvinkipchumba935@gmail.com)]
 GitHub:(https://github.com/KelvinKipchumba67)
